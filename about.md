@@ -4,15 +4,6 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+RCDS College Advice is a website made by RCDS seniors for juniors so that they might have an easier time applying than we did.  It was built as a project in Global Issues, the goal being to create as much value from a single dollar as possible.  
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
-
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
-
-
-[jekyll-organization]: https://github.com/jekyll
+This website is not a substitute for any college counselors or professionals.  We just want to provide and uniquely student tips and things you might feel too embarrassed to talk about with your counselor.  Please contact us with any questions you have about college or the content on the site.
