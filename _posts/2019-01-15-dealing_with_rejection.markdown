@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dealing With Rejection"
-date:   2019-01-15 12:00:00 -0400
+date:   2019-01-15 12:00:01 -0400
 categories: advice
 ---
 
