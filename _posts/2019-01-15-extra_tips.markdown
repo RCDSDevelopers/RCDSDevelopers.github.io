@@ -5,7 +5,7 @@ date:   2019-01-15 12:00:00 -0400
 categories: advice
 ---
 
-Yes you will freak out, yes might have some breakdowns, yes you may cry and turn into a sassy and rude teenager but everything will be okay.  Everyone will end up where they are supposed to be and college isn't the end of the world.  We're in a community that values college to such an unhealthy degree.
+Yes you will freak out, yes might have some breakdowns, yes you may cry and turn into a sassy and rude teenager but everything will be okay.  Everyone will end up where they are supposed to be and college isn't the end of the world.  We're in a community that values college to such an unhealthy degree.  Once we accept that we all become happier with our results.
 
 Listen to soothing music
 
