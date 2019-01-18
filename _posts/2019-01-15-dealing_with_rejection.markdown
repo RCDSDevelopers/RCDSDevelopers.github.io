@@ -14,7 +14,7 @@ Don’t exploit your acceptance to everyone, but the people who you know will ta
 
 # Rejections
 
-Rejection can be tough, but DO not worry and DO not get sad because there are so many other schools. Wherever you end up you will love and you can’t be let down by another’s school’s decision.
+Rejection can be tough, but don't worry and don't get sad because there are so many other schools. Wherever you end up you will love and you can’t be let down by another’s school’s decision.
 
 Throw out that letter and make the most of the one you are accepted to because college is all about what you make of it.  If someone asks you about if you were accepted or rejected, answer on what your feelings regarding this situation are. If you are an open book then illustrate the decision
 
@@ -24,4 +24,4 @@ If you don’t want to exploit your rejection just respond saying “I’m keepi
 
 Hang in there. You are not accepted nor rejected, but you are just put into the regular decision pool. Take this as a positive because the school still thinks highly of you, but couldn’t accept you early. You still have the same chance you did before.
 
-It might be tough waiting another two or so months, but it is better than being rejected. You still are in the running!!!!
+It might be tough waiting another two or so months, but it is better than being rejected. You still are in the running!
