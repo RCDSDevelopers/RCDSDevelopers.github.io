@@ -20,7 +20,7 @@ Be ready to ask questions about the college.  Interviewers will almost always en
 # What to bring
 See what the college’s policy is on resumes.  9 times out of 10 they would like one or at the very least would take one.  It should look clean, ideally stored in a folder, and no more than a page front and back.
 
-Bring a pen and a notepad.  Maybe you’ll have something insightful to write down or maybe not.  At the very least, you’ll look prepared.
+Consider bringing a pen and a notepad.  Maybe you’ll have something insightful to write down or maybe not.  At the very least, you’ll look prepared.
 
 Make it into a show and tell.  If you have an object or some pictures that really capture your high school career, bring it to your interview.  Maybe it’s your art portfolio or something you built; either way it’s great to facilitate discussion.  If you’re showing them pictures on your phone, make a new album of pictures exclusively for interviews just in case they try to scroll through your photos.
 
@@ -33,7 +33,9 @@ Don’t psych yourself out.  It’s just a conversation.  Almost all interviewer
 If you ever catch yourself stretching the truth a little bit, don’t panic.  Try to move onto another topic or anecdote in a way that’s not too forced so that you don’t dig yourself into a hole.
 
 Be conscious of your body language.  Don’t slouch into your chair or fidget with anything.  Try to mirror your interviewer’s posture if relevant.  In other words, if they're leaning back you might not want to sit all the way up and towards the table.  Do try to maintain eye contact whenever possible, especially if they’re the ones talking.
+
 Don’t feel too bad about telling them your accomplishments.  False modesty is something many of us use in our daily lives.  If you did something awesome, tell them that.  If you feel like you might be bragging, you’ll have to read the conversation to see how to talk about your accomplishments.  A good rule of thumb is that if it directly answers their question and is completely true, then it’s not bragging.
+
 Start and end the conversation with firm handshakes and “thank you”s.  It’s not the biggest deal, but a good first impression is always important.
 
 # After the interview
