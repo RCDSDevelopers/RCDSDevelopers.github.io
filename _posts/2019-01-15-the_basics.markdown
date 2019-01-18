@@ -35,7 +35,7 @@ categories: advice
 
   Yellow sheet.  Your yellow sheet is the sheet kept by the college counseling office that keeps track of all of the colleges you are applying to and their deadlines so they know where to send your scores and transcripts.
 
-  Naviance. Naviance is a website that you are able to research colleges and where you can make your official college list. It is connected with your college counselors so they are able to see where you are thinking about applying.  You can search colleges and see where people in the past applied an
+  Naviance. Naviance is a website that you are able to research colleges and where you can make your official college list. It is connected with your college counselors so they are able to see where you are thinking about applying.  You can search colleges and see where people in the past applied and what their results were.
 
 # General Tips
 
